@@ -1,0 +1,3 @@
+# 16 feb  EJERCICIO CUENTA DE CAJA
+
+Contenido para 16 feb  EJERCICIO CUENTA DE CAJA.

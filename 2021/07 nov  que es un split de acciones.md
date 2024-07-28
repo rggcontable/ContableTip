@@ -1,0 +1,3 @@
+# 07 nov  ¿QUE ES UN SPLIT DE ACCIONES?
+
+Contenido para 07 nov  ¿QUE ES UN SPLIT DE ACCIONES?.

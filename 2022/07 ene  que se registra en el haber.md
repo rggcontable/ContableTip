@@ -1,0 +1,3 @@
+# 07 ene  ¿QUE SE REGISTRA EN EL HABER?
+
+Contenido para 07 ene  ¿QUE SE REGISTRA EN EL HABER?.

@@ -1,0 +1,3 @@
+# 30 abr  COSTO AMORTIZADO
+
+Contenido para 30 abr  COSTO AMORTIZADO.

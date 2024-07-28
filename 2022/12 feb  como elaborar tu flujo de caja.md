@@ -1,0 +1,3 @@
+# 12 feb  ¿COMO ELABORAR TU FLUJO DE CAJA?
+
+Contenido para 12 feb  ¿COMO ELABORAR TU FLUJO DE CAJA?.

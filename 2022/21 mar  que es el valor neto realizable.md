@@ -1,0 +1,3 @@
+# 21 mar  ¿QUE ES EL VALOR NETO REALIZABLE?
+
+Contenido para 21 mar  ¿QUE ES EL VALOR NETO REALIZABLE?.

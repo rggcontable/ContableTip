@@ -1,0 +1,3 @@
+# 033 jun  CUENTAS DE GASTOS
+
+Contenido para 033 jun  CUENTAS DE GASTOS.

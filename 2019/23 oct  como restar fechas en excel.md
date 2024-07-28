@@ -1,0 +1,3 @@
+# 23 oct  ¿COMO RESTAR FECHAS EN EXCEL?
+
+Contenido para 23 oct  ¿COMO RESTAR FECHAS EN EXCEL?.

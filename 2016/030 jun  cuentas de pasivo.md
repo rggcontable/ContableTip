@@ -1,0 +1,3 @@
+# 030 jun  CUENTAS DE PASIVO
+
+Contenido para 030 jun  CUENTAS DE PASIVO.

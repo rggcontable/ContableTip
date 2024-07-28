@@ -1,0 +1,3 @@
+# 007 feb  TIPOS DE CONTABILIDAD
+
+Contenido para 007 feb  TIPOS DE CONTABILIDAD.

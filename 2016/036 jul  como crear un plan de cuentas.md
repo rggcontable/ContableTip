@@ -1,0 +1,3 @@
+# 036 jul  COMO CREAR UN PLAN DE CUENTAS?
+
+Contenido para 036 jul  COMO CREAR UN PLAN DE CUENTAS?.

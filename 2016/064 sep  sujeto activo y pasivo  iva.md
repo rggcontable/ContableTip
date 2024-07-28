@@ -1,0 +1,3 @@
+# 064 sep  SUJETO ACTIVO Y PASIVO - IVA
+
+Contenido para 064 sep  SUJETO ACTIVO Y PASIVO - IVA.

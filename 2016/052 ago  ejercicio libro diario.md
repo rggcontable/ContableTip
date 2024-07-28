@@ -1,0 +1,3 @@
+# 052 ago  EJERCICIO LIBRO DIARIO
+
+Contenido para 052 ago  EJERCICIO LIBRO DIARIO.

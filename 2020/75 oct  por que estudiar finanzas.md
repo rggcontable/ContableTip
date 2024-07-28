@@ -1,0 +1,3 @@
+# 75 oct  ¿POR QUE ESTUDIAR FINANZAS?
+
+Contenido para 75 oct  ¿POR QUE ESTUDIAR FINANZAS?.

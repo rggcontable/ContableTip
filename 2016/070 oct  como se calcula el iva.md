@@ -1,0 +1,3 @@
+# 070 oct  COMO SE CALCULA EL IVA?
+
+Contenido para 070 oct  COMO SE CALCULA EL IVA?.

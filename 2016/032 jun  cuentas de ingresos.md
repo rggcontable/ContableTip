@@ -1,0 +1,3 @@
+# 032 jun  CUENTAS DE INGRESOS
+
+Contenido para 032 jun  CUENTAS DE INGRESOS.
